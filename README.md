@@ -1,7 +1,7 @@
 ### Hi there 👋 
 
 
-- His name is Wifal Inola. Now he is 19 years old.
+- His name is Wifal Inola. 
 - He is currently learning in Institute of Technology Bandung in Electrical Engineering field.
 - He wants to collaborate on engineering field and business field.
 - He needs help with business idea and project management
